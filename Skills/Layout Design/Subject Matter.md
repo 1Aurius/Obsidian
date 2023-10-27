@@ -1,0 +1,1 @@
+this is very simple, it's basically when your design has a hand or finger, or any pointing shape really, pointed towards a focus point.

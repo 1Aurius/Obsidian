@@ -1,0 +1,1 @@
+right so, today is 25/09/2023 and i've had eggs for breakfast. Yesterday i made two posts on the [[Skills Index]] but not sure, today i want to filter the [[cult of done]] video, i'll also had a link tab to the [[Skills Index]] Template. Alright yeah that's pretty much it.

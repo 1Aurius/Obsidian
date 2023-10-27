@@ -1,0 +1,2 @@
+When designing, you can out a shape or an element that has an axis running through it, this will layout a path for user's attention and make sure that the vital focus points don't get missed.
+ex: if you put two red stripes in a picture, it's automatic for the user's eyes to follow it.

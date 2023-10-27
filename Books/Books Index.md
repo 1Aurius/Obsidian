@@ -1,0 +1,7 @@
+---
+type:
+  - Index
+---
+
+ [[Pragmatic Programmer]]
+ 

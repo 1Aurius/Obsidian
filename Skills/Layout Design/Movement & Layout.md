@@ -1,0 +1,1 @@
+this is when you use different shapes and colors to make it seem as if the design is flowing towards a certain direction.

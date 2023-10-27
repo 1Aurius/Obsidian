@@ -1,0 +1,1 @@
+YOOOOO was good, first day using the tool, shit's crazy. Today is 24/09/2023 and I've been collecting courses and skills to learn, I've updated those on [[Skills Index]]
